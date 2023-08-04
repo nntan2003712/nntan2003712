@@ -3,7 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 I'm currently a student at UIT University, majoring in Social Media and Web Technology.
 
-*   🌍  I'm based in Binh Duong
+*   🌍  I'm based in Ho Chi Minh
 *   ✉️  You can contact me at [21521806@gm.uit.edu.vn](mailto:21521806@gm.uit.edu.vn)
 *   🧠  I'm learning Japanese,HTML,CSS😄 
 <p align="left">
